@@ -1,7 +1,6 @@
-### Hi there 👋
+### Hi there 👋 「ᶦ ᵃᵐ」   xZiyy々   ⁰¹
 
 <!--
-「ᶦ ᵃᵐ」   xZiyy々   ⁰¹
 
 
 **AldiFauzi404/AldiFauzi404** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
